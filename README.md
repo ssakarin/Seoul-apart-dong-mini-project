@@ -1,7 +1,1 @@
 "# Seoul-apart-dong-mini-project" 
-"# Seoul-apart-dong-mini-project" 
-"# Seoul-apart-dong-mini-project" 
-"# Seoul-apart-dong-mini-project" 
-"# Seoul-apart-dong-mini-project" 
-"# Seoul-apart-dong-mini-project" 
-"# Seoul-apart-dong-mini-project" 
